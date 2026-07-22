@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CUJJ860914HCLLNN01
+CUJJ860914HCLLNN01
